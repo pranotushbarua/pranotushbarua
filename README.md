@@ -1,3 +1,6 @@
+➤ ►🌍📺📱👉 Pushpa 2 The Rule (2024) F𝚞ll Mo𝚟ie
+
+
 - 👋 Hi, I’m @pranotushbarua
 - 👀 I’m interested in ...
 - 🌱 I’m currently learning ...
